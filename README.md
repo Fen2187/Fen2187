@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on game projects and computer builds in the future.
 
 - 📫 How to reach me?
-  - I have a twitch: twitch.tv/fen_here
+  - I have a twitch: https://www.twitch.tv/fen_here
   - I have a youtube: https://www.youtube.com/@Fen_here
   - I do have discord my user is: Fen
   - I have an itch page: https://fen-here.itch.io
