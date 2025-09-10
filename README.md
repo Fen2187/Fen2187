@@ -5,7 +5,7 @@
 
 - 📫 How to reach me?
   - I have a twitch: twitch.tv/fen_here
-  - I have a youtube: https://www.youtube.com/channel/UCCIfb96aSwwbZ_buS1fSk9w
+  - I have a youtube: https://www.youtube.com/@Fen_here
   - I do have discord my user is: Fen
   - I have an itch page: https://fen-here.itch.io/
   - I have a Steam account: 
